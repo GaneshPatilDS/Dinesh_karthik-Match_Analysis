@@ -1,6 +1,6 @@
 # Dinesh_karthik-Match_Analysis
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
-In the match  April 15, 2024, between Dinesh Karthik's team and Sunrisers Hyderabad (SRH), RCB won the toss and elected to bowl first. SRH was given the opportunity to bat first and they set a remarkable IPL record by scoring 287 runs with the loss of only 3 wickets, marking it as the highest score in IPL history up to that point.
+In the match  April 15, 2024, between  RCB team and Sunrisers Hyderabad (SRH), RCB won the toss and elected to bowl first. SRH was given the opportunity to bat first and they set a remarkable IPL record by scoring 287 runs with the loss of only 3 wickets, marking it as the highest score in IPL history up to that point.
 
 In the chase, after the fourth wicket fell (following Faf du Plessis' dismissal), Dinesh Karthik stepped in during the 10th over, facing his first ball at 9.4 overs. Despite the challenging target, Karthik displayed exceptional batting prowess, contributing significantly to the team's fightback. Although they eventually fell short, the loss was narrow, with only a 25-run margin separating them from victory.
 
